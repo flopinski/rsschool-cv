@@ -1,1 +1,1 @@
-# rsschool-cv
+https://flopinski.github.io/rsschool-cv/cv
